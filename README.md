@@ -1,6 +1,6 @@
 # SpyNote-v6.5
 Android Rat 2020 
-Android tester V6.4=Spy-Note v6
+SpyNote v6.5 BlackEdition
 
 SpyNote-v6.5-Cracket-2020
 
